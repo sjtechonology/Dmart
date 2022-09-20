@@ -1,3 +1,0 @@
-yuhuh
-jnknk
-ihni
